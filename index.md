@@ -9,32 +9,32 @@ Before his death, Jesus Christ presents the disciple whom he loves so much the g
 
 At the Cross her station keeping,              Stabat mater dolorósa  
 Stood the mournful Mother weeping,             juxta Crucem lacrimósa,  
-Close to Jesus to the last:                    dum pendébat Fílius.
+Close to Jesus to the last:                    dum pendébat Fílius.  
 
-Through her heart, his sorrow sharing,         Cuius ánimam geméntem,
-All his bitter anguish bearing,                contristántem et doléntem
-now at length the sword has pass'd.            pertransívit gládius.
+Through her heart, his sorrow sharing,         Cuius ánimam geméntem,  
+All his bitter anguish bearing,                contristántem et doléntem  
+now at length the sword has pass'd.            pertransívit gládius.  
 
-Oh, how sad and sore distress'd                O quam tristis et afflícta
-Was that Mother highly blest                   fuit illa benedícta,
-Of the sole-begotten One!  
+Oh, how sad and sore distress'd                O quam tristis et afflícta  
+Was that Mother highly blest                   fuit illa benedícta,  
+Of the sole-begotten One!                      mater Unigéniti!  
 
-Christ above in torment hangs;  
-She beneath beholds the pangs  
-Of her dying glorious Son.  
+Christ above in torment hangs;                 Quae mœrébat et dolébat,  
+She beneath beholds the pangs                  pia Mater, dum vidébat  
+Of her dying glorious Son.                     nati pœnas ínclyti.  
 
-Is there one who would not weep,  
-Whelm'd in miseries so deep,  
-Christ's dear Mother to behold?  
+Is there one who would not weep,               Quis est homo qui non fleret,  
+Whelm'd in miseries so deep,                   matrem Christi si vidéret  
+Christ's dear Mother to behold?                in tanto supplício?  
 
-Can the human heart refrain  
-From partaking in her pain,  
-In that Mother's pain untold?  
+Can the human heart refrain                    Quis non posset contristári  
+From partaking in her pain,                    Christi Matrem contemplári  
+In that Mother's pain untold?                  doléntem cum Fílio?  
 
-Bruis'd, derided, curs'd, defil'd,  
-She beheld her tender Child  
-All with bloody scourges rent;  
+Bruis'd, derided, curs'd, defil'd,             Pro peccátis suæ gentis  
+She beheld her tender Child                    vidit Jésum in torméntis,  
+All with bloody scourges rent;                 et flagéllis súbditum.  
 
-For the sins of his own nation,
-Saw Him hang in desolation,
-Till His Spirit forth He sent.
+For the sins of his own nation,                Vidit suum dulcem Natum  
+Saw Him hang in desolation,                    moriéndo desolátum,
+Till His Spirit forth He sent.                 dum emísit spíritum.  
